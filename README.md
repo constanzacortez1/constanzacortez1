@@ -2,7 +2,7 @@
 - 👀 I’m interested in art, dancing, music, animals, plants and fashion
 - 🌱 I’m currently learning how to programme haha
 - 💞️ I’m looking to collaborate on proyects relationed with social media, art and creative stuff
-- 📫 How to reach me dm me! msnoid.cc@gmail.com
+- 📫 How to reach me dm me! coti.cortez08@gmail.com
 
 <!---
 constanzacortez1/constanzacortez1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
